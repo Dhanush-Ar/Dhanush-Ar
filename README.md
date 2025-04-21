@@ -2,7 +2,7 @@
 - 👀 I’m interested in Development and Automating Operations
 - 🌱 I’m currently learning Devops Tools
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me-dhanusharofficial@gmail.com
+- 📫 To reach me- dhanusharofficial@gmail.com
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact:"Naanthanda LEO"
 
